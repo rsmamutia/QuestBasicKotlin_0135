@@ -1,0 +1,17 @@
+# QuestBasicKotlin_0135
+<img width="1918" height="1078" alt="image" src="https://github.com/user-attachments/assets/f2827448-0722-42e6-a040-78ea3ca48a46" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/32508139-8a2b-49d1-af89-caace0c3e3dc" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/b2274984-1cce-46f3-be77-1b0edaa02141" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/3005873c-ab4e-40e6-bde6-1a6f4be4c1dc" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/4b8aada2-4100-4aee-b732-638d7cd3d333" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/03cb992b-f8ea-4687-b63a-39e83a72de54" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/4c58b6dc-5556-45d1-86b2-c4d5c614cb64" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/a21c073c-2cb1-4e83-8a91-13a3985fe306" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/779955d6-ae43-4770-bde6-2c4f6e1eef95" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/77427f60-7b8b-4386-8575-ab4efc24f87c" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/bf5d20e8-de8d-4e15-94c1-44183b75508e" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/0483dbf4-5d39-4545-95f0-c2edd5829731" />
+
+
+
+
